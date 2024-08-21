@@ -1,5 +1,4 @@
 ### Hi there 👋
 eioufkjghiureyct: ...
 -->
-:bl
-!(https://tenor.com/pt-BR/view/patrick-star-in-love-heart-eyes-love-you-smile-gif-17154725) 
+![pedro](https://tenor.com/pt-BR/view/pedro-approves-pedrorc-pedroredcerberus-yes-agree-gif-11599348)
